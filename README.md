@@ -1,8 +1,7 @@
  -SOBRE MIN
  ####
 - 👀 I’m interested in  ESTUDAR E TRABALHAR E FOCAR EM MIN
-- 🌱 I’m currently learning ...
-- COMPUTAÇ
+- 🌱 I’m currently learning ...COMPUTAÇÂO
 - 💞️  ...
 - 📫 How to reach me ...
 - REBOUÇAS-PR 
