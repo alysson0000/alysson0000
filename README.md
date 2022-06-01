@@ -8,7 +8,7 @@
 - 📞 +55 42 9843-5482 CHAMA LA  TROCO  DIVULGAÇâO HEHE
 - 042
 - 🇧🇷 
-- aa_dmgs. instragram
+- a_dmgs.1 instragram
 
 <!---
 alysson0000/alysson0000 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
